@@ -1,5 +1,1 @@
-Resent Client 5.1
-
-DOWNLOAD FILES IN RELEASES
-
-Resent Client was not made by me, it is from the Resent Client Team, credit goes to them.
+I need a Break From Updating these things.
